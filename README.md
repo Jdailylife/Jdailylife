@@ -9,6 +9,5 @@ Here are some ideas to get you started:
 - 👯
 - 🤔
 - 💬
-- 📫
 - 😄 Pronouns: superhero haha.
 - ⚡ Fun fact: I don't know how to use the _GitHub_ haha!
